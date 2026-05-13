@@ -1,4 +1,4 @@
-# 
+# custom NFT Floor Sweeper for blur sniper bot | volume-analysis & price-impact-analysis is the best blur sniper bot, featuring volume-analysis and price-impact-analysis. Fast,
 
 
 
